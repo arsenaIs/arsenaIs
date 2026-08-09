@@ -1,4 +1,4 @@
-<p align="center"> ARSENAL VS DORTMUND IM READY </p>
+<p align="center"> arsenal sell gyokeres pls </p>
 
 <div align="center">
   <img src="https://file.garden/amCuDGcSQR36Di_1/sakanoni%20real" width="300">
