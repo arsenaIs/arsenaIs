@@ -1,4 +1,4 @@
-<p align="center"> chelsea hate watch today xd </p>
+<p align="center"> chelsea hate watch FAILED DONT TALK TO ME </p>
 <div align="center">
   <img src="https://i.pinimg.com/736x/9b/58/c0/9b58c0e6a63011eaf8b52db9398033cf.jpg" width="400">
 </div>
