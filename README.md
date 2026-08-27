@@ -4,3 +4,16 @@
 </div>
 
 <p align="center"><a href= "https://lluc.atabook.org">atabook</a>      <a href= "https://rentry.co/arsenaI">rentry</a>      <a href= "https://madueke.straw.page">strawpage</a>   (˶˃ ᵕ ˂˶)</p>
+<p align="center"> </p>
+<p align="center"> </p>
+
+<div align="center">
+  <img src="https://file.garden/amCuDGcSQR36Di_1/lebron%20daddy%20james" width="400">
+</div>
+
+<p align="center"> </p>
+<p align="center"> </p>
+
+<div align="center">
+  <img src="https://file.garden/amCuDGcSQR36Di_1/lebron%20daddy%20james%202" width="400">
+</div>
