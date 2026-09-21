@@ -1,4 +1,4 @@
-<p align="center"> wdym arsenal vs brighton? that never happened. </p>
+<p align="center"> ARS VS BHA NEVER HAPPENED, ATM VS RMA NEVER HAPPENED. </p>
 <div align="center">
   <img src="https://i.pinimg.com/736x/9b/58/c0/9b58c0e6a63011eaf8b52db9398033cf.jpg" width="450">
 </div>
