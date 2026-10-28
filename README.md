@@ -3,7 +3,7 @@
   <img src="https://i.pinimg.com/736x/9b/58/c0/9b58c0e6a63011eaf8b52db9398033cf.jpg" width="450">
 </div>
 
-<p align="center"><a href= "https://lluc.atabook.org">atabook</a>    <a href= "https://rentry.co/arsenaI">rentry</a>      <a href= "https://www.bookdfootball.com/profile/sukuna">bookd</a>    <a href= "https://guns.lol/erling">guns.lol</a>   (˶˃ ᵕ ˂˶)</p>
+<p align="center"><a href= "https://lluc.atabook.org">atabook</a>    <a href= "https://rentry.co/arsenaI">rentry</a>      <a href= "https://www.bookdfootball.com/profile/sukuna">bookd</a>    <a href= "https://guns.lol/birdofprey">guns.lol</a>   (˶˃ ᵕ ˂˶)</p>
 <p align="center"> </p>
 <p align="center"> </p>
 
